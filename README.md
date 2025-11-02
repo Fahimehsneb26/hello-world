@@ -6,3 +6,7 @@ goed gekeurd
 
 Ik ben Fahimeh en dit is mijn vernieuwde portfolio!
 
+het was een goede oefening!
+
+interessant!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+
